@@ -4,7 +4,7 @@
     <img src="https://img.shields.io/badge/lang-Íslenska-green?style=for-the-badge" />
   </a>
 
-  <a href="./README.eng.md">
+  <a href="./README.en.md">
     <img src="https://img.shields.io/badge/lang-English-blue?style=for-the-badge" />
   </a>
   
