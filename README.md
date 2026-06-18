@@ -1,10 +1,10 @@
 <p align="center">
 
-  <a href="./README.is.md">
+  <a href="./README.md">
     <img src="https://img.shields.io/badge/lang-Íslenska-green?style=for-the-badge" />
   </a>
 
-  <a href="./README.md">
+  <a href="./README.eng.md">
     <img src="https://img.shields.io/badge/lang-English-blue?style=for-the-badge" />
   </a>
   
