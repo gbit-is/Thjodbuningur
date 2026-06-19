@@ -14,11 +14,11 @@ Svo raðast sniðið svona saman
 
 # Merkingar á sniði
 
-- Á framhluta í átt að miðju eru auka línur. Þegar sniðið var nægilega stórt til að passa utan um axlirnar á mér þægilega, þá náðu miðjurnar ekki nógu langt. Ég framlengdi línurnar til þess að hægt sé að stækka framhlutann ef að þörf er á því. (þar sem augun fyrir keðjuna eru, þar endar upprunalega sniðið
+- Á framhluta í átt að miðju eru auka línur. Þegar sniðið var nægilega stórt til að passa utan um axlirnar á mér þægilega, þá náðu miðjurnar ekki nógu langt. Ég framlengdi línurnar til þess að hægt sé að stækka framhlutann ef að þörf er á því. (Upprunalega sniðið endar við myllurnar)
 
-- Á framhluta er punktalína, hugsuð til að merkja hvar skraut bitinn sem fer framan á ætti að sitja
+- Á framhluta er punktalína, hugsuð til að merkja fyrir boðganginum
 
-- Á böndum sem fara yfir öxl eru margar línur, fyrir mig þegar sniðið passaði utan um hendur, þá voru þau bönd of löng, til þess að einfalda það að snytta það til, þá bætti ég við línum til þess að stytta böndin jafnt.
+- Á böndum sem fara yfir öxl eru margar línur, fyrir mig þegar sniðið passaði utan um búkinn, þá voru þau bönd of löng, til þess að einfalda það að snytta það til, þá bætti ég við línum til þess að stytta böndin jafnt.
 
 - Víða á sniðinu eru bókstafa merkingar, þær eru til að sýna hvar hlutir raðast saman
 
