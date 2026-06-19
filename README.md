@@ -28,13 +28,13 @@ Ef þú skyldir nýta þér þetta verkefni, til þess að búa eitthvað til þ
 \*\*\*\*   **Fyrirvari:** Ég hef litla reynslu af saumaskap og hef ekki saumað þjóðbúning úr þessi sniði. Ég prentaði það út á pappír og mátaði og það virtist virka ágætlega   
 Ef þú ert að hugsa um að sauma upphlut úr þessu sniði, þá viltu kannski byrja með pappír, ódýrt efni eða búa til upphlut á bangsa fyrst    
 
-Þetta er byrjunin á þessu verkefni mínu, í spjalli við vinkonu þá fórum við að spá í því hvernig þjóðbúningasniðið væri.   
+Þetta er byrjunin á þessu verkefni mínu, í spjalli við vinkonu þá fórum við að spá í því hvernig sniðið að upphlutnum væri.   
 Við bjuggumst við að fara á netið, leita eftir “þjóðbúningur snið” og fá allskonar niðurstöður en svo var nú ekki.  
 
 Hafandi gaman af handavinnu og upplýsingasöfnun, þá gróf ég dýpra og fór að reyna finna útúr þessu.  
-Eftir dágóða leit, endaði ég á facebook, í þjóðbúningahóp og þar minnist einhver á bókina/bæklinginn “Þjóðbúningar” frá 1974 og í því er snið. Sú bók er til á baekur.is [hlekkur á bókina](https://baekur.is/bok/811d7d74-8ed4-499c-a81b-b5e4bd0c6e95), [hlekkur á blaðsíðuna](https://baekur.is/bok/811d7d74-8ed4-499c-a81b-b5e4bd0c6e95/0/6/Islenskir#page/n5/mode/1up)  En það er skannað, gulnað eintak og ekki þægilegt að vinna með í tölvu. 
+Eftir dágóða leit, endaði ég á facebook, í þjóðbúningahóp og þar minnist einhver á bókina/bæklinginn “Þjóðbúningar” frá 1974 og í því er snið. Sú bók er til á baekur.is [hlekkur á bókina](https://baekur.is/bok/811d7d74-8ed4-499c-a81b-b5e4bd0c6e95), [hlekkur á blaðsíðuna](https://baekur.is/bok/811d7d74-8ed4-499c-a81b-b5e4bd0c6e95/0/6/Islenskir#page/n5/mode/1up). En það er skannað, gulnað eintak og ekki þægilegt að vinna með í tölvu. 
 
-Ég notaði þær teikningar, til þess að búa til snið á tölvutæku formi sem hægt er að prenta út. Sú bók verandi yfir 50 ára gömul og aðgengileg öllum á netinu, upprunalega skrifuð í þeim tilgangi að gera þessar upplýsingar og teikningar aðgengilegar þá fannst mér það í fínu lagi eða nýta þeirra teikningar, með tilvísun að sjálfsögðu.  
+Ég notaði þær teikningar, til þess að búa til snið á tölvutæku formi sem hægt er að prenta út. Sú bók verandi yfir 50 ára gömul og aðgengileg öllum á netinu, upprunalega skrifuð í þeim tilgangi að gera þessar upplýsingar og teikningar aðgengilegar þá fannst mér það í fínu lagi að nýta þeirra teikningar, með tilvísun að sjálfsögðu.  
 Ég hefði viljað getað beðið Svanhvíti Friðriksdóttur um leyfi fyrir að endurgera teikninguna hennar en hún lést 2009.
 Fleiri komu að gerð upprunalegu bókarinnar og ég læt hér fylgja formála bókarinnar:
 
