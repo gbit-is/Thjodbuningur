@@ -36,7 +36,7 @@ Eftir dágóða leit, endaði ég á facebook, í þjóðbúningahóp og þar mi
 
 Ég notaði þær teikningar, til þess að búa til snið á tölvutæku formi sem hægt er að prenta út. Sú bók verandi yfir 50 ára gömul og aðgengileg öllum á netinu, upprunalega skrifuð í þeim tilgangi að gera þessar upplýsingar og teikningar aðgengilegar þá fannst mér það í fínu lagi eða nýta þeirra teikningar, með tilvísun að sjálfsögðu.  
 Ég hefði viljað getað beðið Svanhvíti Friðriksdóttur um leyfi fyrir að endurgera teikninguna hennar en hún lést 2009.
-Fleiri komu að gerð upprunalega bókarinnar og ég læt hér fylgja formála bókarinnar:
+Fleiri komu að gerð upprunalegu bókarinnar og ég læt hér fylgja formála bókarinnar:
 
 
 > Heimilisiðnaðarfélag Íslands, Kvenfélagasamband Íslands og Þjóðdansafélag Reykjavíkur hafa kosið samstarfsnefnd til að gera tillögur um samræmingu í gerð íslenskra þjóðbúninga með hliðsjón af eldri gerðum, að koma á framfæri leiðbeiningum um gerð búninga og reyna að tryggja, að á boðstólum séu efni, sem hæfa í búningana.
